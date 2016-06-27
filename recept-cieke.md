@@ -2,6 +2,10 @@
 
 Voor x personen
 
+Benodigde tijd
+voorbereiding: 5 min
+bereiding: 20 min
+
 ## Benodigdheden
 
 Voor de saus:
